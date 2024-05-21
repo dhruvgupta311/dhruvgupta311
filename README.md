@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **guptadhruv198@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/123oNrheYv7wUZ4G_AqlsO29a-7lzW_Sk/view?usp=sharing](https://drive.google.com/file/d/123oNrheYv7wUZ4G_AqlsO29a-7lzW_Sk/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/123oNrheYv7wUZ4G_AqlsO29a-7lzW_Sk/view?usp=sharing](https://drive.google.com/file/d/1a4gQd6yAm42mcS12A7GEWCYXUEOtXlyc/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
