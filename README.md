@@ -10,7 +10,6 @@
 - 👨‍💻 All of my projects are available at [https://github.com/dhruvgupta311](https://github.com/dhruvgupta311)
 
 - 📫 How to reach me **guptadhruv198@gmail.com**
-- 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
