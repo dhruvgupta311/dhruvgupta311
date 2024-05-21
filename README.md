@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
+[![MasterHead](https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif)
 <h1 align="center">Hi 👋, I'm Dhruv Gupta</h1>
 <h3 align="center">IIITian | Flutter Developer | Problem-Solving Entusiast from India</h3>
 
